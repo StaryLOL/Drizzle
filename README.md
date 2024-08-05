@@ -1,0 +1,1 @@
+** HIDE AND SNEAK SCRIPT **
